@@ -1,2 +1,2 @@
 # BitForge
-Where your cold is crafted and finished Was precision in care
+Where your cold is crafted and finished With precision in care
